@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **Jonathanleegobin25@gmail.com**
 
-- ⚡ Fun fact **I was on the same basketball team as two NBA champions**
+- ⚡ Fun fact **I was on the same highschool basketball team as two NBA champions**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
